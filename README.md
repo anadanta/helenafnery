@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @helenafnery
+- 👀 I’m interested in back-end
+- 🌱 I’m currently learning programming basics
+- 📫 How to reach me - instagram: helenanery https://instagram.com/helenanery?igshid=MWM2YjBjM2Q=
